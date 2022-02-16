@@ -5,7 +5,7 @@
 
 - 📫 Você pode me contatar pelo e-mail: **vini.pozzi.99@hotmail.com**
 
-- 📄 Saiba mais sobre minhas experiências: [https://www.linkedin.com/in/vinicius-capozzi-22a821191](https://www.linkedin.com/in/vinicius-capozzi-22a821191)
+- 📄 Saiba mais sobre minhas experiências: [https://www.linkedin.com/in/vinicius-capozzi-22a821191]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
